@@ -18,7 +18,7 @@ Read the Docs Sphinx Theme
 This Sphinx_ theme was designed to provide a great reader experience for
 documentation users on both desktop and mobile devices. This theme is used
 primarily on `Read the Docs`_ but can work with any Sphinx project. You can find
-a working demo of the theme in the `theme documentation`_
+a working demo of the theme in the `theme documentation`_ . Test the link: http://toyensaovietnam.com/cong-dung-tac-dung-to-yen-yen-sao/
 
 .. _Sphinx: http://www.sphinx-doc.org
 .. _Read the Docs: http://www.readthedocs.org
