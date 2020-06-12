@@ -1,18 +1,27 @@
-==========================================
+******************************************
 Some effects of edible bird nests on women
-==========================================
-As we all know, collagen is the main ingredient that helps the skin become smooth, ruddy. That is also the reason why many women do not regret buying millions of pills containing this substance, but looking forward to having flawless, flawless skin, hiding wrinkles brought about by age. An interesting surprise is that Salanganes'Nest contains a large content of natural collagen, so the addition of bird nests to beautify the skin very effectively is an indisputable fact.
+******************************************
 
-Moreover, in oats only natural galactose sugar without fat, can be used every day without fear of weight gain. Women who eat oats regularly will be less prone to acne, freckles, melasma, moreover get smooth skin, especially slow down the aging process.
+Some effects of edible bird nests on women
+###########################################
+* As we all know, collagen is the main ingredient that helps the skin become smooth, ruddy. That is also the reason why many women do not regret buying millions of pills containing this substance, but looking forward to having flawless, flawless skin, hiding wrinkles brought about by age. An interesting surprise is that Salanganes'Nest contains a large content of natural collagen, so the addition of bird nests to beautify the skin very effectively is an indisputable fact.
 
-http://toyensaovietnam.com/an-yen-co-tac-dung-nhu-the-nao-voi-phu-nu/
+* Moreover, in oats only natural galactose sugar without fat, can be used every day without fear of weight gain. Women who eat oats regularly will be less prone to acne, freckles, melasma, moreover get smooth skin, especially slow down the aging process.
+
+* http://toyensaovietnam.com/an-yen-co-tac-dung-nhu-the-nao-voi-phu-nu/
+
 
 Uses of bird's nest for pregnant women
+#######################################
+* Nutrition for mothers during the pregnancy is extremely important because it directly affects the development of the fetus. Whether the fetus is healthy, intelligent or not depends on whether the mother's nutrition is balanced, adequate, and the amount needed.
 
-Nutrition for mothers during the pregnancy is extremely important because it directly affects the development of the fetus. Whether the fetus is healthy, intelligent or not depends on whether the mother's nutrition is balanced, adequate, and the amount needed.
-The first 3 months of pregnancy are a very important period. At this time, the fetus is just beginning to form nerve cells and the immune system. If the resistance of the mother is weak, susceptible to diseases, adversely affecting the health of the mother and the fetus. Improving resistance for mothers is an important factor for the complete development of the fetus.
-http://toyensaovietnam.com/tac-dung-cua-to-yen-danh-cho-phu-nu-mang-thai/
+* The first 3 months of pregnancy are a very important period. At this time, the fetus is just beginning to form nerve cells and the immune system. If the resistance of the mother is weak, susceptible to diseases, adversely affecting the health of the mother and the fetus. Improving resistance for mothers is an important factor for the complete development of the fetus.
+
+* http://toyensaovietnam.com/tac-dung-cua-to-yen-danh-cho-phu-nu-mang-thai/
+
 Whether pregnant women can use the bird's nest
+##############################################
+
 Pregnant women eat edible bird nest good? Certainly the answer is yes. Because, in this with protein content up to 45-55%. This protein content maintains energy for the body to stay healthy. With 31 essential trace elements for the body, bird's nest is often used for cases of body weakness, fatigue, poor blood, etc.
 Some people believe that bird's nest is cool, if used during pregnancy can cause children to have asthma after birth or even increase the likehood of allergies in children later. However, this is a misconception. There are no documents as well as scientific basis to confirm the concept, so pregnant women should feel secure when using bird's nest to improve their health.
 http://toyensaovietnam.com/phu-nu-mang-thai-co-nen-dung-to-yen-yen-sao-khong/
